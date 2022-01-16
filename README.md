@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VishrutMKrishna
-- 👀 I’m interested in Making games ,Graphic Designs, watching football mathes
+- 👀 I’m interested in Making games ,Graphic Designs, watching football mathes and playing football
 - 🌱 I’m currently learning to code and to make games 
 
 
